@@ -1,3 +1,3 @@
 Biopane Website
 
-Visit us []
+Visit us: www.biopaneenergy.com
